@@ -1,4 +1,4 @@
-# 💫 About Me:
+Hey,I'm Marwan👋
 💻 Tech Enthusiast | 👨‍💻 Software Developer | 🤖 AI & Data Science Learner<br><br>🚀 I enjoy building projects, exploring new technologies, and turning ideas into real products.<br> 📚 Always learning, 💪 staying healthy, and 🎯 taking on new challenges every day.<br>
 
 
